@@ -11,6 +11,4 @@ I recently browsed a very interesting website:
 ## Comments:
 I really like your sharing, it is really interesting! (commented by Sina Liu)
 
-I should visit websites like these instead of asking ChatGPT for explanations! 
-(commented by Daniel Lee)
 
